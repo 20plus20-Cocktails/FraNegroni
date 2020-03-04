@@ -1,5 +1,7 @@
 # Fra Negroni
 
+![FraNegroni Logo](https://repository-images.githubusercontent.com/242986480/f11d7400-5e2d-11ea-8330-aafd1f611760)
+
 ## Ingredients
 
 - 1 part Campari
