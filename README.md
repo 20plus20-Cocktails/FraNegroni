@@ -4,9 +4,9 @@
 
 ## Ingredients
 
-- 1 part Campari
-- 1 part Gin
-- 1 part Ginja
+- 1 part Campari Bitter
+- 1 part London Dry Gin
+- 1 part Ginja D'Óbidos
 - Squeeze a few orange drops
 
 ## Preparation
