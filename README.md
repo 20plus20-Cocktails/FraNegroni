@@ -11,6 +11,6 @@
 
 ## Preparation
 
-Pour the ginja, campari, gin and a few fresh orange drops into a rocks glass filled with ice.
+Pour the Ginja, Campari, Gin, and a few fresh orange drops into a rocks glass filled with ice.
 
 Stir gently, garnish with an orange peel.
