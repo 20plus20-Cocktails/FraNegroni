@@ -4,14 +4,13 @@
 
 ## Ingredients
 
-- 1 part Campari Bitter
-- 1 part London Dry Gin
-- 1 part Ginja D'Óbidos
+- 3 cl Campari Bitter
+- 3 cl London Dry Gin
+- 3 cl Ginja d'Óbidos
 - Squeeze a few orange drops
 
 ## Preparation
 
-1. Mix with ice
-2. Pour in rock glass, on the rocks
-3. Add a slice of orange
-4. Garnish with orange peel
+Pour the Ginja, Campari, Gin, and a few fresh orange drops into a rocks glass filled with ice.
+
+Stir gently, garnish with an orange peel.
